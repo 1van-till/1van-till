@@ -1,7 +1,8 @@
 
 ![ivantill kiss](https://github.com/user-attachments/assets/802b3a7f-9f2a-4cf9-a16b-e1f621db74ac)
-![ME AND MY SKIBIDI!!!!](https://github.com/user-attachments/assets/0ca1fb34-fc82-468f-8485-7e8e007666e5)
+
 ![Ivantill meme](https://github.com/user-attachments/assets/16a4d363-f99a-4a83-9e6a-1a6311193335)
+![ME AND MY SKIBIDI!!!!](https://github.com/user-attachments/assets/eb80ab9b-330b-4cd6-8636-7c539c8c1205)" width"300"
 
 <!--
 **1van-till/1van-till** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
