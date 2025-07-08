@@ -2,9 +2,8 @@
 ![ivantill kiss](https://github.com/user-attachments/assets/802b3a7f-9f2a-4cf9-a16b-e1f621db74ac)
 
 ![Ivantill meme](https://github.com/user-attachments/assets/16a4d363-f99a-4a83-9e6a-1a6311193335)
-< ![ME AND MY SKIBIDI!!!!](https://github.com/user-attachments/assets/eb80ab9b-330b-4cd6-8636-7c539c8c1205)" width"300" />
+![](https://github.com/user-attachments/assets/b46081fb-ded7-47d1-8aca-ebbcea263f46 =250×250)
 
-<!--
 **1van-till/1van-till** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
