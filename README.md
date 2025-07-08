@@ -1,2 +1,2 @@
-<"![Ivantill meme](https://github.com/user-attachments/assets/49cd10cc-1c11-4591-8fa5-9e79f3fbb067)
-" width="437" height="234">
+<img src=![ME AND MY SKIBIDI!!!!](https://github.com/user-attachments/assets/7e1550c8-c293-41da-912c-3bac9055bb6d)
+ width="324" height="324">
