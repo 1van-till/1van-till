@@ -1,6 +1,6 @@
 
 <img src="![ME AND MY SKIBIDI!!!!](https://github.com/user-attachments/assets/8b36081b-4b6d-4c6b-8842-f10d6b3a219d)
-" width="324" height="324">
+" width="500" height="134">
 
 
 
