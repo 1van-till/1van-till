@@ -1,2 +1,1 @@
-<img src=![ME AND MY SKIBIDI!!!!](https://github.com/user-attachments/assets/7e1550c8-c293-41da-912c-3bac9055bb6d)
- width="324" height="324">
+![ivantill kiss](https://github.com/user-attachments/assets/5616143b-4600-4a9c-904b-3deb3d47e005)
